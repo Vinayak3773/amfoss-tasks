@@ -1,1 +1,0 @@
-This task was quiet easy for me because there was a downloaded file for unbuntu software with my friend so i just boot with my pc using a pendrive. I was using windows but now I'm using dual board as windows as well as ubuntu.
